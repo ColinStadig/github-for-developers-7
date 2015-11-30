@@ -1,0 +1,4 @@
+- Colin Stadig
+- Hamilton, ON, CA
+- Pizza (who's favorite food isn't pizza?)
+- Favorite Color: Brown and Clear
